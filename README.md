@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ratmando-n
-Art, animation, music, - 👀 I’m interested in ... and pearl jar/primes/peppers
+Art, animation, music, - 👀 I’m interested in ... and pearl jam/primus/peppers
 - 🌱 I’m currently learning ..  python
 - 💞️ I’m looking to collaborate on ..unsure . ..
 - 📫 How to reach me ..@cathescomicz on twitter.
